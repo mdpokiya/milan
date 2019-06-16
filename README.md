@@ -1,2 +1,2 @@
-# milan
-about my work
+#Milan Pokiya
+Syarting Learning a new Skill to imprive some knolwedge.
